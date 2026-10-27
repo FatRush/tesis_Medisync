@@ -1,1 +1,1 @@
-# tesis_Medisync
+Brayan Ely Alvarado Caballero
